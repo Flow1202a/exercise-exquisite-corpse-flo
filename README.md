@@ -16,4 +16,4 @@ Pendant cette quête, Mistral découvrit des pouvoirs insoupçonnés en lui-mêm
 
 et finir par créer une maison en pain d'épice
 
-afin de satisfaire son _fantasme_
+afin de satisfaire son _fantasme_ qu'il attendat depuis des années
