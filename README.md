@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse-flo
+# Le cadavre exquis de Flo :)
